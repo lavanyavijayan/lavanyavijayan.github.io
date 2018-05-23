@@ -1,3 +1,3 @@
 # lavanyavijayan.github.io
 
-# music and writing
+# music, mental health, identity, important humans, nail art, problems & ideas : mico & macro, spirituality, travel, utopia
